@@ -58,4 +58,22 @@ While waiting for my order, I check the traffic leading into Buffalo. My eyes wi
 
 -----
 
-17:00. Still sitting in this standstill.
+17:00. Still sitting in this standstill. The car in front of me just pulls over to the left shoulder and two men get out. One stands on the left side while the other goes into the bushes (as the median is wide and has brush growing in the middle) to take a piss. Once he finishes, they switch spots. Okaaaaaaaaaaaaaay…
+
+Half an hour later, traffic reaches the cause of this standstill. New York State Police troopers surround one of the box vans involved, off to the right shoulder, while a tow truck picks it up. I look over and it appears much of the cargo area disappeared, most likely by fire. After the quick peek, because looking any longer just delays everyone else behind, I floor it into open road, up to just slightly over the speed limit. The joyride is short lived, as "PAY TOLL 1000 FEET" comes into view. Well that just means I have just reached Buffalo.
+
+I am looking for Interstate 190 north. Looking for I-190 north towards the Peace Bridge. Found it, exit onto it, first leading into central Buffalo. Now looking for the exit leading towards the Peace Bridge. But I am in the wrong lane and miss the exit. Well, guess I'll take the next exit that is not an expressway of some kind. Found it.
+
+At this point, driving through the streets of Buffalo, I remember that I need to dispose of all my garbage and that I will not have cell service in Canada until the next day. The streets are of worse condition than I would think of Buffalo but there was no time to wallow in that. The mission now is to find a gas station or somewhere to dispose of all my garbage and catch up on the group chat I missed while driving, or so I think I would just do. Finally a gas station comes into view on the left side and I pull into it. I find a spot to park in that no one would care about and just sit there for a bit.
+
+First, dump out all the garbage. When I said "a spot that no one would care about", I really meant within a few feet of the garbage can. It is necessary to just dump anything and everything that CBSA may have suspicion about, which really just includes food and its related waste products. In this case, I still have that McDeez bag formerly containing two whole large fries which I fully chomped in the standstil on the Thruway. Dumped.
+
+Next, check up on group chat. Nothing too interesting to describe here besides the usual banter that happens there.
+
+The sun starts to steadily set. Obviously, when that happens, it is getting late. My Airbnb check-in time is only in another hour and fifteen. Fine, let's get to the border *now*. I switch off the SoundCloud that I had been listening to for the entire drive up to this point. Seek through the radio stations in the Buffalo/Fort Erie/Niagara market. It's all pop, rock and NPR around here. Oh whatever, it is only another two hours or so till Toronto. Oh, and how can I forget to get my green card ready for inspection at the inspection booth?
+
+Bridge to Canada. Let's do this.
+
+-----
+
+CBSA: Bonjour, hello.
