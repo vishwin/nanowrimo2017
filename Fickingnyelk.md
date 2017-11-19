@@ -38,4 +38,24 @@ Fam, in the automotive repair industry, parts are cheap. Labour is not. Just mor
 
 -----
 
+Five hours later and I finally start going west, exiting Interstate 81 and Interstate 476 earlier. I just crossed into Syracuse and now need to make my way to the New York State Thruway. There is just one problem: I am almost out of fuel, as in the fuel gauge is *at* empty. However, I know for a fact that fuel on the Thruway's service plazas will be more expensive than what I can get elsewhere.
 
+I exit onto Interstate 690 west towards the Thruway, also known as Interstate 90, or even *The* 90. I hoped that once deeper in the western suburbs of Syracuse that I would find a reasonably-priced gas station along 690. I had to operate on the guessing game at this point, as I still had my hands on the wheel and feet on the pedals; normally I would check my GasBuddy app to compare fuel prices. Continuing to drive on 690, there were just no exits featuring signs for fuel. Then the sign for the Thruway appeared. I now have two choices: get on the Thruway and fuel up at the first service plaza or continue on Route 690 (the Interstate designation ends at the Thruway) and hope the first exit past the Thruway has fuel.
+
+I choose to stay on 690, now changing to state highway status and north as cardinal direction instead of west. At first I thought an exit would appear soon. It soon becomes apparent that there is some distance, say at least five miles, between the Thruway and the first exit after for Baldwinsville. Huzzah, there is a sign featuring gas stations at the exit, and I immediately get ready to exit and pull into the first one prima facie. Down the ramp, I notice the first sign pointing towards a station after turning left, but then I see an actual station on the right, so I turn right. Then it was an immediate left into the station, but only after sitting in the middle turn lane for a minute.
+
+Fuelling starts. I update the group chat: "fuel stop in Baldwinsville." We have someone from Syracuse in this chat but she generally works night shifts, so maybe she saw that but I doubt it.
+
+-----
+
+Two hours later on the Thruway, the hunger creeps up to me and I pull into the Ontario Service Plaza. Funny, that name is very situationally aware as I was heading to the province of Ontario. I take a picture of the plaque on the building and post it to the group chat.
+
+This will turn out as the last food before crossing the border, as we are just west of Rochester at this point. Buffalo is not too far away, perhaps an hour or so without traffic. Remember that now.
+
+I eye a McDonald's and immediately remember to open their app to check for any deals they may have. Aha! Buy one, get one free large fries. Easy enough to eat off the shotgun seat while driving, right? I mean, just pluck one or a few fries at a time with one hand without having to look at them. And two large fries without anything else will definitely fill me up.
+
+While waiting for my order, I check the traffic leading into Buffalo. My eyes widen. Standstill traffic not too far west of the next service plaza. All before Buffalo. Well it's not like I have much choice, the question becomes do I want to wait till this subsides or just solder on through. I decide to just solder on through, and by that time my order was ready.
+
+-----
+
+17:00. Still sitting in this standstill.
