@@ -60,4 +60,62 @@ Approaching the I-89 interchange, I remind both of us that northbound, there is 
 
 "Well Charlie, let's not be that guy."
 
-Traffic drops off now.
+Traffic drops off now. There is nothing of real interest during the rest of the drive to the Canadian border, apart from two variable message signs that the Vermont Agency of Transportation erected at regular intervals anyway. At the time, VTrans were on an anti-drunk driving campaign, so by default, those signs would have a generic "drive sober or get pulled over" message. However, a new Star Wars had just released, so at least one apparent Star Wars fan within VTrans decided to change the anti-drunk driving message for the day: "Drink and drive? Path to dark side it is."
+
+Half an hour later, we pass the final exit for U.S. Route 7 south, which in the pre-Interstate Highway System days continued to the border. Now, Interstate 89 uses the same roadbed, albeit expanded to four divided lanes, to the same border crossing, and we come across a final variable message sign reminding us to get our identification ready for inspection. "We bout to be free men," remarked Varun.
+
+-----
+
+Me: Hello
+
+CBSA: Bonjour, hello.
+
+[we hand over my US green card and Varun's US passport card]
+
+CBSA: What is your purpose in Canada today?
+
+Me: Visit Montreal for the day, visit the Biodôme, go up Mont Royal…
+
+CBSA: Are you planning on visiting any friends or other people you know in Canada on this trip?
+
+Me: We have a dinner date with one of my friends in Montreal. He goes to Concordia University.
+
+CBSA: How do you know him?
+
+Me: Through various university events at different schools, specifically Michigan and Yale.
+
+CBSA: And both of you, both students?
+
+Varun: Yeah.
+
+CBSA: Are you bringing any firearms today?
+
+Me: No.
+
+CBSA: Any fruits, vegetables?
+
+Me: No.
+
+CBSA: Any meats?
+
+Me: No.
+
+[CBSA officer works his touchscreen and prints a receipt]
+
+CBSA: Okay, I need you to park your car over there, we just need to verify some more things.
+
+-----
+
+I drive and park in the secondary inspection area. Both of us get out of the car and start walking into the building but two CBSA officers were already walking towards us. We handed them our travel documents and proceeded to ask the same questions as the primary officer. We proceede to give them the exact same answers. This is a tactic that border officers use in general, to see if travellers' stories hold up and that they are not lying.
+
+"Okay, we will go and search your car real quick."
+
+Me and Varun stand on the sidewalk while the two secondary officers lightly ransack the car. I pull out my phone to see if there was any service whatsoever, but alas, absolutely nothing. Not two minutes later do the two officers finish their search, which really only consisted of looking through the trunk and opening our bags, an "okay" and our travel documents returned to us.
+
+"Damn son," I remarked to Varun. "I guess this could have been a lot worse."
+
+-----
+
+Despite having no mobile service after crossing the border…wait, it was possible that service dropped off a few miles before. Varun had told me prior that when he would venture into the Vermont Kingdom, he would check his phone occasionally and see a roaming status and shake his head. Both of us have Verizon Wireless, which theoretically should cover everything within the lower 48 states save for the dead zone of West Virginia.
+
+Regardless, Varun had downloaded episodes upon episodes of Car Talk for us to listen to while driving. Once he boarded back in Burlington, the adventures of Click and Clack the Tappet Brothers started. Good thing he downloaded everything beforehand, as we would have nothing but French-language radio to listen to had we be streaming those episodes.
