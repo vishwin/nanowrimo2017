@@ -86,4 +86,36 @@ Once closing ceremony ended, I drove to Shift to make sure we got rid of everyth
 
 -----
 
-The original plan for this weekend was not only have those who were there, but also a couple Ohio State friends of mine join up given that they were accepted to MHacks. Unfortunately, they were not, but got accepted to HackIllinois.
+The original plan for this weekend was not only have those who were there, but also a couple Ohio State friends of mine join up given that they were accepted to MHacks. Unfortunately, they were not, but got accepted to HackIllinois at the University of Illinois Urbana-Champaign. The Ohio Staters would wrap up a bit later than us, partly owing to the Central Time Zone Illinois is in, so their bus would get on the road proportionally later than us. I gave the option to my compatriot to stop by Columbus, where Ohio State is, to crash at my Ohio State friend's house for the night instead of just gunning it back to Penn State the same night. We chose to head to Columbus.
+
+Columbus is a helluva lot shorter distance and drive than to State College from Ann Arbor. I checked the maps and it said it would only take about two to three hours, but closer to the two-hour range. We would be waiting for my Ohio State friend to get off the bus for a good amount of time, so I quickly planned out some napping points to kill some time before he got back. This was a bit more difficult as almost all of the route to Columbus is along U.S. Route 23, which obviously is not a limited-access road with rest areas the entire way. Fortunately enough, much of U.S. Route 23 through the northern half of Ohio is a divided highway with bypasses around some of the larger towns, plus there were two rest areas in some of the more desolate spots. I picked out one of those rest areas to nap in, then figured that after some time in that rest area, we would pick it up straight to Columbus and find some parking near my friend's house.
+
+Still in Ann Arbor, we start making our way back to U.S. Route 23 to head south. Not too shabby.
+
+-----
+
+We make it to the rest area somewhere in northern Ohio. As soon as I cut the engine, I text my friend to see where he is at, then immediately fall asleep. Both of us were remarkably tired and drowsy after 36 hours of hacking, so we took any opportunity to rest like candy. At this rest area, it is only another hour or so to Columbus, so we ended up taking a liberal amount of time to recline and shut our eyes. I had to be cautious about the time though, so my nap kind of sucked as I anticipated my friend replying at any minute.
+
+Two hours later, I decide we need to start making our way to Columbus. I checked the text messages one last time; the bus from Illinois is somewhat closer but still has some road to cover. Great. We put our seats back to an upright position. I am feeling a bit more refreshed for at least just the drive into Columbus. We pull out of the rest area and we are on our way.
+
+After a few sparse traffic lights, we make it to the one marked Oletangy River Road, also known as Ohio State Route 315. At this point, State Route 315 is a narrow, winding two-lane road along its namesake river, but once it hits the Columbus beltway, Interstate 270, it becomes a full-fledged limited-access expressway through the central northern part of Columbus. The other option was to stay on U.S. Route 23 to Interstate 270, merge onto 270 westbound for one exit to then change to State Route 315 south. I figured that it would be much less of a hassle to just take State Route 315 the whole way until we reached the exit for Ohio State's campus.
+
+Once I saw the signs and the distinctive cable-stayed bridge leading to the campus, I made my way towards the exit and the bridge. I had driven through here multiple times previously, the first time not by me, so I was familiar with how to get to the campus and my friend's house. The familiar bright yellow glow from the streetlamps shone on the streets of Columbus towards our destination for the night, further confirming the correct path. I make a left onto my friend's street and almost immediately parallel park into an empty spot. We then recline, I text my friend that we have just arrived and to look for a grey Chrysler 200 with New York State tags on it. We fall asleep, waiting for him to knock on our window.
+
+-----
+
+"Wassup dawg!"
+
+We exchange bro hugs and start talking about our respective hackathons we just came from. Then we bring in just our sleeping bags in preparation to sleep, but we wanted something to eat too. He mentions a Raising Cane's Chicken Fingers restaurant down the street that was still open. It is almost 23:00. We decided to make a break for Raising Cane's as that was probably our best option at this point for any sort of food. Even the gas station's convenience store a couple blocks away from his house has its doors locked right now.
+
+Neither me nor my compatriot had ever heard of Raising Cane's. Apparently they are a fast casual chicken finger restaurant chain from Louisiana and Ohio is kind of an island in terms of their market geography. Being that the both of us are both nearly dead, we did not expect too much in terms of taste, but we were pleasantly wowed nonetheless. The stuff was good.
+
+We drive back to my friend's house. He is already asleep in his room, so we come in quietly and get in our sleeping bags for a few hours.
+
+-----
+
+4 a.m. Before I crashed in my sleeping bag, I estimated how much time it would take to drive to Penn State from here. I planned it such that my compatriot would make his first class of the day, which thankfully is not until noon. That means that we would need to leave at around 4 a.m. This also includes any unplanned rest area excursions in case I suddenly feel drowsy.
+
+We quietly pack up our stuff and make our way out of Columbus. It was still the dead of night as we drove along Interstate 70 eastbound past the Interstate 270 beltway, but the sun rapidly rose as we made our way into the rolling hills of eastern Ohio. Some time shortly before the Interstate 470 exit just west of Wheeling, West Virginia, not only did the car need fuel but I needed to lay down again.
+
+Half an hour later, we cross into the northern West Virginia panhandle, the only obstacle along Interstate 70 to Pennsylvania. All of this drive between Columbus and Penn State is completely familiar territory. I know that once we get east enough into PA, we would encounter the PA Turnpike. If I was heading to Philadelphia, I would exit onto the Turnpike. But Penn State is a bit northeast of where the Turnpike serves along the way, and taking the Turnpike would be like the sides of a triangle.
