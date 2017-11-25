@@ -114,8 +114,12 @@ Me and Varun stand on the sidewalk while the two secondary officers lightly rans
 
 "Damn son," I remarked to Varun. "I guess this could have been a lot worse."
 
+"And they didn't even put our shit back where it should have!" retorted Varun.
+
 -----
 
 Despite having no mobile service after crossing the border…wait, it was possible that service dropped off a few miles before. Varun had told me prior that when he would venture into the Vermont Kingdom, he would check his phone occasionally and see a roaming status and shake his head. Both of us have Verizon Wireless, which theoretically should cover everything within the lower 48 states save for the dead zone of West Virginia.
 
 Regardless, Varun had downloaded episodes upon episodes of Car Talk for us to listen to while driving. Once he boarded back in Burlington, the adventures of Click and Clack the Tappet Brothers started. Good thing he downloaded everything beforehand, as we would have nothing but French-language radio to listen to had we be streaming those episodes.
+
+"Well if you drove less you'd like it better!" howls Tom Magliozzi.
