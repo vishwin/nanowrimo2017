@@ -77,3 +77,107 @@ Bridge to Canada. Let's do this.
 -----
 
 CBSA: Bonjour, hello.
+
+[I hand over my US green card inside the protective sleeve]
+
+CBSA: I need to see your vehicle registration too. Take the card out of the holder.
+
+[CBSA officer hands me my card back so I can take it out of the sleeve, losing the sleeve in the process. I fumble through the glove box to find the holder containing the registration and insurance cards]
+
+CBSA: Is the radio on?
+
+[I shut off the radio]
+
+Me: It's off now.
+
+[I continue searching through the glove box until I eventually find the registration and insurance cards]
+
+CBSA: Just give me everything.
+
+[I hand the officer my US green card and the registration and insurance cards. CBSA looks through the slip containing registration and insurance]
+
+CBSA: This is just the insurance—oh here it is.
+
+[CBSA officer runs all my documents through the computer]
+
+CBSA: So what are you doing in Canada today?
+
+Me: Going to ride on the velodrome in Milton, visit some national parks and see some friends for one week.
+
+CBSA: Is this your first time in Canada?
+
+Me: Will be my third time.
+
+CBSA: And will you be visiting friends, family on this trip?
+
+Me: Yes, I will be seeing my friends at the end of the week. They all live in Toronto.
+
+CBSA: How do you know them?
+
+Me: They visited the US previously, specifically in New York and North Carolina. They were friends of my other friends originally, and they always had to come down to the US whenever we would plan gatherings. This time it's our turn to come to Canada.
+
+CBSA: Where's home for you?
+
+Me: Western suburb of Philadelphia.
+
+CBSA: What do you do for a living?
+
+Me: I'm a self-employed computing consultant.
+
+CBSA: Will you be looking for or performing any work on this trip?
+
+Me: I will not be working. I have enough to do as-is.
+
+CBSA: Why are you so nervous?
+
+Me: I didn't expect like two of these questions rapid-fire. Plus I know you have to be suspicious of everything until proven otherwise.
+
+CBSA: Well you should expect me to ask you anything!
+
+[pause]
+
+CBSA: Any firearms with you today?
+
+Me: No firearms.
+
+CBSA: Any items of self-defence?
+
+Me: No items of self-defence.
+
+CBSA: Did you buy anything at duty-free?
+
+Me: No duty-free.
+
+CBSA: Thank you have a nice day.
+
+-----
+
+What a sigh of relief. First time ever where I have not been sent to secondary inspection crossing into Canada. That was the scariest part of all, to make sure to convince the border officer that I would not be entering the Canadian labour market period, especially because I work for my own company. I pull away from the inspection booth to proceed to the toll plaza for the Peace Bridge, raise my E-ZPass transponder to the windscreen to assess the bridge toll, then immediately take the first exit in Fort Erie. First exit, because, Queen Elizabeth Way.
+
+It is dead in the streets of Fort Erie at 19:00. Once at the end of the offramp, I made a snap decision to turn right in search of any at least semi-deserted parking lot to catch up on text messages if I still have service. I assumed that Verizon Wireless would cut off immediately at the border, but when I pulled into a parking lot for some Ontario-licensed realtor office, I discovered that I still had 3G. Enough to get textual messages and slower image and video downloads.
+
+Before I left the parking lot to get back onto the QEW towards Toronto, I mulled over whether I wanted to continue pressing my luck with commercial radio stations or try to stream as much SoundCloud as I could before service completely cut off. Before I left on this trip, I activated Verizon's international pass, which allows use of my existing plan as if I was still on Verizon's network despite using Bell or Rodgers or whoever's network outside the US. It would not be activated for the rest of this night, hence this pondering. I elected to continue pressing my luck with the radio stations, knowing full well that the music played may very all be pop. I guess I can deal with it for the last two or three hours on the road. I also remembered to update my Airbnb host on my whereabouts, as I would arrive much later than what I had put on the reservation.
+
+Onwards to Toronto.
+
+-----
+
+I was almost positive that given my Airbnb host's name, he is of Chinese descent.
+
+More than three hours later, which included getting lost in the Scarborough section of Toronto for a bit, I finally pull up in front of the house. The lights were on and the doors unlocked, but no one was around. I decide to walk in anyway in hopes of finding a soul.
+
+Immediately I start looking for the wifi information, as I still have no service on my phone. As the Airbnb app can only operate over the internet, that was what I needed to let the host know that I have finally arrived. Luckily, this host has been extremely thorough with making sure everyone is well taken care of, and has the wifi information on so many pieces of paper around the house. I did not want to stray much from the living room and main kitchen before the host or anyone else showed up for that matter, as a couple, presumably one of the other guests in this house, rolls back in. I ask them if they knew anything about where all the rooms are located, but they rightfully could not be of much help, as their rooms were straight ahead. But back to the wifi. I successfully connect my phone to the wifi and immediately message the host.
+
+Five minutes later, the host rolls up in his Porsche Cayenne. "Oh you're a Chinese person!" he exclaims excitedly. I guess there are not that many ethnically Chinese people who roll through on Airbnb, as WeChat is a bit more prevalent in the ethnically Chinese communities around the world. We communicated exclusively in Chinese from that initial exclamation.
+
+He immediately starts showing me where my room is, how to use everything that I need and even provided brand new body wash and shampoo for the bathroom. Then I told him that I need to unload my bikes somewhere indoors, so he offered a spot in the living room flanked by chairs so they would stay upright. Good enough for now.
+
+"If you need anything, feel free to message me. I live only 250 metres away on the next street over. Good night!"
+
+-----
+
+I crossed the border with no food or drink save twenty bottles of water. It is now the next morning, and I should stock up on some food for this week to be consumed entirely before crossing back into the United States. But first, get some breakfast, as shopping on an empty stomach always results in bad news. I locate a breakfast/brunch spot only a few blocks away and check out their menu online. Good enough, I am going there.
+
+I get myself some bacon, fried eggs over hard and home fries. The rest is history.
+
+Next, since I was not hip to any particularly Canadian or Torontonian grocery stores, I veered towards the familiar, which was Walmart.
